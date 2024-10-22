@@ -5,4 +5,4 @@
 
 ## headr2
 
-that is so fany! :fany:
+that is so fany! 🇸🇦:
